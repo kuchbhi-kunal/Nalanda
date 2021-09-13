@@ -1,3 +1,3 @@
-# Nalanda Digital
+landa Digital
 
-### Because Why Not
+### Because Why 
