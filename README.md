@@ -1,4 +1,4 @@
-gital
+al
 ### Digital
 #### Digital
 ##### Digital
