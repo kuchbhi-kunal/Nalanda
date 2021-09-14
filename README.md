@@ -1,4 +1,4 @@
-# Nalanda
-## digital library
+# Digital
+# digital library
 ### Digital
 #### Digital
