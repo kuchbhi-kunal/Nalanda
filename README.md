@@ -1,3 +1,3 @@
-gital
+tal
 ##### Digital
 ###### Digital
