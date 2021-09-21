@@ -7,7 +7,7 @@
 ##### Nalanda
 #### Nalanda
 ### Nalanda
-## Naland
+## Nalan
 # 
 
 
