@@ -1,7 +1,7 @@
 # 
 ## Nalanda
 ### Nalanda
-#### Naland
+#### Nalan
 ##### 
 ###### 
 ##### 
